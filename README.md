@@ -1,3 +1,2 @@
 # myicons
 
-https://media.discordapp.net/attachments/1219325209279201410/1219325930812739614/6_-_.jpg?ex=67f35883&is=67f20703&hm=5181310b4aa7026597796f67feacecc468f0b0873a8a374247395ac72650ed84&=&format=webp&width=873&height=873
